@@ -4,5 +4,5 @@
 - 📫 Contact me on Discord at carnageyt. or DM me on Twitter: https://twitter.com/whitefoxhacker
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm in 10th grade.
-
+- Owner @ strykerhackforums
 
